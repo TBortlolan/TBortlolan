@@ -1,4 +1,4 @@
-🗿
+
 South Windsor Robotics Club Member
 
 
