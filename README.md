@@ -1,19 +1,5 @@
 🗿
-Can Do Things
-
-
-
-
-
-Kind Of
-
-
-
-
-
-
-
-Not Really
+South Windsor Robotics Club Member
 
 
 
@@ -29,7 +15,7 @@ Not Really
 
 
 
-Okay I Cant Do Things
+
 <!---
 ✨
 👋
